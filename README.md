@@ -1,4 +1,4 @@
-# Hi, I'm Zeineb Kaak 👋
+# Hi, I'm Zeyneb Kaak 👋
 
 **Data Analyst | Business Intelligence** — Tunis, Tunisia
 
